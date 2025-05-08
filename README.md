@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as a Senior Technical Product Specialist at obilet.com.<br>👯 I’m currently learning software.
+🔭 I’m currently working as a Product Manager at obilet.com.<br>👯 I’m currently learning software.
 
 
 ## 🌐 Socials:
